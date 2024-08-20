@@ -30,6 +30,4 @@ For any inquiries, you can reach out via the contact form on the website or dire
 
 **Anisa Idress** : https://github.com/AnisaIdress
 
-**Reema**
 
-## 
